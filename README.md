@@ -1,1 +1,1 @@
-# [Continuous Curve Textures](https://1iyiwei.github.io/cct-siga20/) #
+# [Upcoming paper title](https://1iyiwei.github.io/cct-siga20/) #
